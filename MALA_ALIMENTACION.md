@@ -9,3 +9,11 @@
 2. Bulimia nerviosa: Implica episodios recurrentes de ingestión excesiva de alimentos seguidos de comportamientos compensatorios, como el vómito autoinducido o el uso excesivo de laxantes, en un intento de evitar el aumento de peso.
 
 3. Trastorno por atracón: Se caracteriza por episodios recurrentes de ingestión excesiva de alimentos en un período de tiempo específico, acompañados de una sensación de pérdida de control y malestar emocional, pero sin los comportamientos compensatorios observados en la bulimia nerviosa.
+
+### Consecuencias ###
+
+*Estos trastornos pueden tener consecuencias graves para la salud física y mental de quienes los padecen, y a menudo requieren intervención médica y terapéutica para su tratamiento.*
+
+
+
+
